@@ -1,3 +1,3 @@
 # tEsT
 
-![TEST](https://cdn.bongo.ninja/sharex/bwJdoMu8re.png)
+![TEST](https://i.imgur.com/zhsQpEs.png)
